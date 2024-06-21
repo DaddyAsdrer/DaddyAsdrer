@@ -1,9 +1,9 @@
-- Pueden llamarme DaddyAsrer para comunicarse conmigo
+- Pueden llamarme DaddyAsdrer para comunicarse conmigo
 - Odio que no usen adecuadamente las mayúsculas
 - Estoy interesado en la programación orientada a aprendizaje supervisado
 - Pueden comunicarse conmigo  por medio de asdrerleinan@gmail.com
 
-- You can call me DaddyAsrer to communicate with me
+- You can call me DaddyAsdrer to communicate with me
 - I hate that you don't use capital letters properly.
 - I'm interested in programming aimed at supervised learning
 - You can contact me at asdrerleinan@gmail.com
